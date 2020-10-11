@@ -10,7 +10,7 @@ GitHubだいすきーず
 - ICTV2015（Kiki）
 
 ## テーマ
-### ◇◇◇◇◇
+### 弟の無断外出を防げ！！（弟を守れ！！）
 - abcdefg
 - stuvwxyz
 
